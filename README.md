@@ -1,1 +1,1 @@
-KING 1인 1
+Meet your ingredient friends in the mart and be cooked!
